@@ -1,0 +1,1 @@
+# Scrap-product-details
